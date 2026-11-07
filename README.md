@@ -4,4 +4,4 @@ Web Developer and Business Management student from India. I build responsive, mo
 Contact : +91 7869231186
 Email : mohdahmedraza02@gmail.com
 linkedin: https://www.linkedin.com/in/mohdahmedd
-Instargam: ahmedophy
+Instargam: https://www.instagram.com/ahmedophy/
